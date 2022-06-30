@@ -1107,6 +1107,86 @@ H2 értékrendszer, beszéd, erőforrás, ott ♏ földies ☿, király hitelese
 ♈↷2:♉ enegetikai földelés, kell egy stabil háttér
 ♐ családba tesztes (?), stabilitás, ♑ kinti szivató
 
+---
+
+ma: 05.05.
+2.
+9 magha
+tartot ♓ szép arkánum
+
+U.PH ♌⭢♍, szfinx, oroszlán testű, női Naraszimha, teste oroszlán feje emberi,
+H5 ~ ♌, méltóság, lélek, ☉, ♌nak szüksége van arra kell közvetítő
+H6 ~ ♍, ☿ analóg, kislány, mivel irányítók, melyik gyógyszer, műhely, mi a szükségek/prioritás 
+háztól házig koncept, bhavat bhavan,
+H2 mivel tartjuk fel , anyagi eredmények és forgó színpad, valaminek eredménye, 
+	értékrendszer, amiből meríteni, kút, támpont, megbízottak, adminisztráció, 
+	megfelelő emberekbe bizalom,
+ H02---H12
+H03--♌--H11
+ H04---H10
+H05--♒--H09 
+ H06---H08
+
+♌ király,
+☊ látszatkirály, henyélj, hedonizálj, adó, internet, csirkefarhát
+♒ jegy nép kritikája
+igény megszületik, éhes vagy, egészség, tudatállapot, fontos kérdés, részletek, minőség, sötét helyzet,
+	nem kapsz lelkit, stimuláló, gyógyszer, elnyomás, ismerkedsz, drogozol, minden játék övé a homokozóban
+	lelkibb élet, tudás, fejlődésre igény, új kocsi, enni, inni, aludni, védekezni - ha megvan jól,
+	de mégis hiányzik valami: stimulál érzékeit/ lelki igény
+	elmúlás múlandó/ tiszta lelkiismeret
+
+♌⭢U.PH⭢♍
+♌: hatalom, kiadja a parancsot, király, elnök, főtitkár, főnök, este-i munka: ♄
+	este született ♄, nappal született: ☉
+☉-♄
+	☉:	lélek, eredeti otthon, belső nap, kihúz a csávából
+	♄: anyagi világ, nem ellenség, erőfeszítés, akadály, ellenállás
+♍: részletek, mindent ellenőrizni, felkészülni a problémákra, praktikus tudás, csatornarendszer, millió 	apró dolog egysége, mit a természet
+
+ASC ⭠ura: egyén személye, fizikai való, mit játszol, hozza a samskarakat, 
+	alaphangulatot hoz, te milyen vagy?
+
+☉: rejtett erőforrás, mibe büntizve, hogy érzed, mért került ide? magad mint lélek, börtön-samsara
+☽: te személyesen hogyan éled med, érzed, adod tovább 
+☉ lélekjelölő, dara (?) karaka, legmagasabb fok, olyan társ, aki visszatükröz, 
+	☉ atmakaraka, magabiztos, egoleépüklés, felelősséget vállalni 
+
+☉ van börtönbe, ♑ nem vállalt felelősséget, megfutamodott, istent játszott, átéget (?) a problémákon
+ha szenved rá is jöhet mennyi mindenhez van ereje és túlmegy, 
+házat karmát tud égetni rajta,
+karma: megnyilvánult / csíra felismeri elégeti/ ,még nem nyilvánult 
+
+
+---
+
+MAGHA ♌ szíve, nem arra, hogy robot, hanem méltóság, nemes, király szeretik, régen szent király,
+a király istent szolgálja, film: Hős 2002 Jet Li, király az ég alatt van, szitát tart, legerélyesebb nő,
+böjtölt, testileg gyengült, szemérmes, emberi ideál, Rama Jana, evlesztette királyságát, 
+Szítát visszaszerezni, egy démontól Ravanától, a modern kor Ramajana-ja: Fb Twitter Insta,
+Szíta gyűrű elrabolta, Szíta nem mondott igent, ragjaszik (?) kínozták, 
+Ramajana: elolvasni - lelki szatvikus szent könyv, Hanumán hogyan szolgál
+U.PH⭠☉,Bhaga, bőséget adja,
+
+♋			♌
+királynő 	király
+elme 		lélek
+Szíta 		Ráma (☉ avatar, 8. Vishnu avatar)
+Laksura		Hommon(?) 
+Radhe		Krishna
+ahol a ☽,♋,H4: ott bizonytalan, gyengédség, gyengeség, melyik színpad? az ahol elveszítjük az önképünket,
+♋: meditáció, táplálás, puhaság, figyelmesség, főz, mos, szükséges dolgokat megcsinál, 
+néha a kevesebb több
+ahol a ☉,♌,H5: ott túlkompenzáljuk, magabiztosság
+
+
+
+
+
+
+
+
+
 
 ---
 vibgyor astrology - sunlight and seven planets
