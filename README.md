@@ -1179,10 +1179,37 @@ ahol a ☽,♋,H4: ott bizonytalan, gyengédség, gyengeség, melyik színpad? a
 néha a kevesebb több
 ahol a ☉,♌,H5: ott túlkompenzáljuk, magabiztosság
 
+U.PH (☉)
+a király bizolralyan (?), szolgálatkész, szociális, összekapcsol a király - szolgáló,
+marater (?), mediátor, összekapcsoló, kisfőnök, előbb odamegy dolgozni, tökéletesítés, emésztőrendszer,
+megcsinálja, amit más nem, alzatos, szolgálatkész, kritika érték, jó mimikáló ♍, humorérzék, ott a munkába
+☉uralta naks, kell a föld alap, ledolgozni, tűzből ⭢ föld: ☉ uralta, inspiráció, praktikus, harc,
+♈ megálmod, alapít, ⭢ ♉ kiépíti
 
+♌ megcsinálja királyságot, rendszer, gondolkodó egység 
+♍ létrehozza a szervezettséget, ehhez praktizál, gyógyászat (?)
 
+♐ legyen lelki alap, edukáció, baj ♄ jön és sanyargat, legyen bátorság, áldás, hatalom, 
+	megalapozod, hogy lelki
+♑ vagy nyerünk, vagy nem, de vizsgán átmenni, nyomot hagyni, mérföldkövek, hősi halált, vezeklés
 
+HASTA (☽) ♍
+aranykezű, Brahma amhalrtr (?), (kéz) keret (?), om bhur buvasvara, éberség, inelligencia, 
+Savitur a napnak a felkelő első sugara, tudatlanságból felébreszt, intelligencia, nap sugara, 
+elme sokfelé ágazó, kéz legkifinomultabb rész, sok mindant csinálni, tanulni, javítani, szakmákat, skillek, forrás bennünk, sakti: keres, ő elhozza és kezébe adja, mint egy dzsin
+fény, szükség, inspiráció, ami nem szívesen: wc-t, ellenállás, mekkora a kupi,
+inkább beszéddel, nehezen kezd,
 
+CHITRA (♂)
+
+tehetség kötődik hozzá, sikeres, művész nagy egóval, ☽ itt született, nayg gyöngyszem, gyönyörű kép,
+a dolgok rendszerszintű ismerete, ☽at elégedetté tesz, anyagi test, röntgen, CT, milyen szövet, milyen vér, rétegelt, mint a gyöngy ahogy létrejön,  jól átlát, érzékel, kreatív, jól betanítható, ékszerész, gyógyító, művész, született tehetség, egyfajta büszkeség, nehezen veszi rá, rendszerszintű ismeret,
+♍⭢♎ lehetőség, művészet, szép, képet fest, tiszta szoba, művészivé manifesztál, 
+a ☽ is Soma víz is megy fel.., Krishna 6 fő: legnagyobb, lemondott, gyönyörű, legtehetségesebb, legszebb, minden szemnek tetsző, vonzó, vigyázni: én tudom, hogy szép vagyok, tessék hódolni, szimmetrikus arc, szép ez a.., pózol, 1. ♂i naks.,
+szolgálatkészség ♍ alázat kell ⭢ igényeket támaszt ♎, legyen igényed arra: parfüm, maya, elhagyod magad külsőért, ehhez képest én.., kell a szépség, harmónia, szép kirakatok, gyöngyörű, formás, majd tökéletes,
+értékrendszer, nem vallásos, szépérzékkel megáldják, nem érzékenyek, jobb kép kifelé, szépséggel hatni, illat, művész, CHIT - kegyetlen, visszaélés, ára van,
+
+SWATI ☊
 
 
 
@@ -1207,3 +1234,4 @@ sűrűbb, magasabb
 × FM
 × AM 
 ritkább, mélyebb
+
