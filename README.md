@@ -1211,14 +1211,84 @@ szolgálatkészség ♍ alázat kell ⭢ igényeket támaszt ♎, legyen igénye
 
 SWATI ☊
 
+szembe a ♈sal, (fűszál rajz), ♎, de kell a tudás, ne csak külsőség
+fűszál, szél felfelé törekszik, ha letapossák meghajol és visszalép,
+meghasonlik ~ ARDRA
+Naomi Cambell (?) - mint egy istennő, Brájen élete -film
+megszólal a lelkiismeret, elválik
+ihletettség, tudás, spontán Sarasvati
+Hanumanji Prana itt született, Ráma ↓ utas (?)
+Arjuna zászlaja is Homérosz (?)
+kiteljesedés individumként, amikor megtalálja magát, ért ehhez
+CHITRA beszól.. elbizakodott?
+függetlenség, szemben az ASW prana ki istenből, itt a prána,
+milyen istentől elkülönülni?
+ember tudását ⭢ felerősít vagy elvág - ő az isten
+azt csinálok, amit akarok
+individualitást ellened (?) használja
 
+VISHAKA 
+Hanuman - Vaju az apja - levegő, szél szabadság, ha nincs levegő hiányzik,
+Isten adja a lélegzet, én magam lélegzek, ez az én erényem,
+☉↓ lélek anyagi életet él, itt tanulja meg hogy alázatos, 
+hogy visszacsatolás, re-legio, joga, visszacsatlakozni, nem áldott -el van vágva istantől,
+tehetség istenért, talentum
+szabad vagy ha istent szolgálod, belesimulsz, kihívás, kaland, bátorságpróba,
+ember független, nagyon eg/alázatos, nagyon kettős, ki kell taláni ha nincs, 
+Bruce Lee harcművész, spontán mozgás - swift, gyors, mobil, mi jön az utunkba, lelkesítő
+☽↓ sok lehetőség, alázat, így is úgyis (?) nehéz 
+érzelem betódul majd a ♏val, félelem vágy koktéla
+individumkén spekuláltál, meg fogsz halni, egyedül érzi magát, ebből elixír, individuális bullshit
 
+ANURADHA 
 
+trutyiból feljövő lótusz, szirma tiszta, odaadás
+♎: a szolgáálat nincs legyökerezve 
+érzelmi koktél, megcsinálom a legjobb dolgokat, sikeres lehetsz,
+kis idő, ami van siker, ahol a szívünk
+
+JYESHTA
+
+jönnek a segítők, mint a növényt, "legidősebb", régi barát, tisztelte tudás,
+
+↓gandanta↓
+
+MOOLA
+
+élet lényege, saját tapasztalat megvan, gyümölcs learatva, legyökerezés, új alapzat-új élet,
+ki a hazugság, el az állúgyókkal (?), stabil alap, kőszikla, elvetett jó mag 
+Tejút közepe, letisztázhatsz mindent,
+
+P. ASH 
+Ganesha - fej intelligencia a fején ormány elhárít, fül, győzelem előkészítője
+itt tudod mi van, tudsz lelkesíteni, játékosság van, megerősíteni, elkérted a lány kezét holtodiglan,
+ki velem ki ellenem, szent háború, locsold a virágot, lelki erőt merítesz- oda át,
+lelkesít ♐ igét mondod, van rend lelkesen, istennél a nyertes játszma
+♄ átmeneti önrendelkező kisistenek ♎
+ki az állati ösztönök
+♎: művészet még
+♐♃ MOOL/P.ASH - örök érvényű dharma 
+
+U. ASHADA (ABHIJIT - jó jel)
+
+végső győzelem, ♑ megszilárdítás, megőrzöm akije van, 
+♄ szorongat, realitást mutat, ♑ önfegyelem, struktúra, szervezet, föld: szükség
+
+SRAVANA ☽ Vishnu
+
+hallás Pet Walker Isy Dikana (?)
+♑ közepe, alázat helye,
+♃↓ Vamona ♃ avatar Bali maharaj rálépett a fejére 
+♃ mmegtanít, a legfontosabb lecke - alázat 
+struktúra energiamegőrzés, föld a meditáció, természetbe lecsendesedik,
+megtanulta ♐ban a leckéket, struktúra - vár, hallás által finomabb frekvencia,
+bábeli torony lelki tolmács, hallás, csönd, összekötő egyesítő ösvny,
+külpolitika naks., vallások közt syncritism; figyeld ami közös, ne ami elválaszt
 
 ---
 vibgyor astrology - sunlight and seven planets
 
-sűrűbb, magasabb
+sűrűbb/gyakoribb freq., magasabb
 × gamma 
 × röntgen
 ☊ UV
@@ -1233,5 +1303,5 @@ sűrűbb, magasabb
 × mikrohullám
 × FM
 × AM 
-ritkább, mélyebb
+ritkább frekv., mélyebb
 
