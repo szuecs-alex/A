@@ -1285,6 +1285,66 @@ megtanulta ♐ban a leckéket, struktúra - vár, hallás által finomabb frekve
 bábeli torony lelki tolmács, hallás, csönd, összekötő egyesítő ösvny,
 külpolitika naks., vallások közt syncritism; figyeld ami közös, ne ami elválaszt
 
+DHANISTA, SHAVISTA 
+
+♑ban ♐ban szerzett értékálló együttműködés, zene,
+ennek is a struktúrája
+igazság, nyelvek: zenébe összefoglalni
+értékálló, utókornak megmarad, közösséget, népet vonz, egység, érzékek,
+DHAN - bőség 
+5 elem és 3 .. = 8 vasu, összefog és támogat 
+♂↑ képességek, erő, fókusztált, ünnepi, diadal
+
+SHATABISAJ - egy kör 
+
+frsktálódik, népegység ♒, csoportok, politikus, mezőgazdász, humanisztikus, kinek mi a nézete,
+klikkesedés, pozitív együttműködő közösségek, épít nem hátráltat, 100 gyógyító virág, technokrata is,
+humanitárius, StarWars technológia és természet és erő, természetgyógyászat, 
+gyógyítás természetes vagy tech., minden levegős individualista
+♎ 180°ra, ♌⭠⭢♒ dogma szemben, ♐⭠⭢♊ vallási dogma ezzel szembe
+☊ csaló tendencia, ne hallgass rá, hallgass saját magadra, hogyan legyél szembe a zsarolással,
+individualizmus közepe, 
+ARDRA-SWATI, saját játékszabály, hogy ne nézzék hülyének az embert
+
+P.BH
+
+már semmilyen kör, ennyira lelki, visszatértek a saját körükbe (?), fel szeretnék oldódni, 
+lépj ki a térből, légy harcos, tűzkígyó, nem akarsz anyagi lenni, ismerősök annyi, magány,
+hasonló magányos társak, sakkozni, malmozni, lelki fejlődés, 
+mennyire tudom követni hitem? aztán vissza.. cikázik, templomba belépni, ahol bátorság kell,
+bátor elhatárzozódás,  mennydörgés, Pál lefordul a lováról, új élet, kilépsz a testedből,
+ez az érzés kell, (villám) te kapsz egy isteni beavatást,
+ezt tudod másnak, vslskit lelkileg felemelni, isteni jel,
+(ARD - a tomboló vihar, gyerek durcizik)
+
+U.BH. - a turdásért lemenő kígyó 
+
+telihold az ~ : ajándékoznak shimad Bhagavatamot, arany trónon 
+lemegy a mélybe, egy vízbe, (~ HASTA felébreszt )
+~ kundalini, agynak cizellált reészei, dunakavics sötét repedések és lyukak - nap átvilágít
+egyszerre lenne áldásod, lelki tudás lelki agyat átjárja, hiányosságot átalakítja, hibák leszámolása,
+csökkenti az anyagi vágyakat, anyagi vágyak elfedik a lelki természetet,
+tudatának istennek csatoka végső spotok (??), kozmikus esőt hozza, lelki beteljesedés 
+
+REVATI 
+
+révész, Pushan fogatlan félisten, tápláló, lezár, átviszi a lelket túl.,
+♄ született, ♄ gajartri napkelte előtt, krémleves tejbegríz amihez nem kell fog,
+mindenki lélek, mindenki átutazó, megértő, támogató, tápláló, ♓ álmod,
+
+--
+
+júli vége- aug eleje ☊♂ amíg ♉ba nem lép a ♂, megedzett legyen az ember belsőleg,
+☊ asc-re megy- fejet elveszti, tíz szavitur, Indragni vihar, Agni tűz
+
+--
+
+ASPEKTUS 
+☿♀☉☽:7
+♂:4,7,8
+♄:7,3,10
+♃:7,5,9
+
 ---
 vibgyor astrology - sunlight and seven planets
 
